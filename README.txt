@@ -1,3 +1,0 @@
-Chris Cotton
-
-Detroit Tigers
